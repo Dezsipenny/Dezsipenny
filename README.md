@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dezsipenny
+- 👋 Hi, I’m Dezsi's Angel 6073 😇
 - 👀 I’m like going for walks around naberhood.
 Gardening, taking pictures and spending time with my family.
 - 🌱 I’m currently learning ...
