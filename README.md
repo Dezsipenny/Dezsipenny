@@ -1,8 +1,8 @@
-- 👋 Hi, I’m Dezsi's Angel 6073 😇
-- 👀 I’m like going for walks around naberhood.
-Gardening, taking pictures and spending time with my family.
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👋 Hi, I’m Mysticdreams51 😇
+- 👀 I like going for walks around our naberhood.
+Gardening, taking pictures and spending time outside and with my family. 
+- 🌱 I’m currently learning ... About rain run offs and how I can improve the areas around me.
+- 💞️ I’m looking to collaborate on Nature and wildlife and studying cryptics like bigfoot and the Mothman. that really fascinates me.
 - 📫 How to reach me ...
 
 <!---
